@@ -1,0 +1,2 @@
+# figma-lovable
+Design vari
